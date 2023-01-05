@@ -3,7 +3,7 @@
 In a new Era, The SILK Women™ Cooperative empowers women through micro-business and entrepreneurship training with a focus on financial literacy and community development.
                                          
                          We are a Cooperative for Women worldwide focused on
-                                 Strength » Intelligence » Love » Kindness
+                                 Strength » Integrity » Love » Knowledge
            Join us to collaborate in art & crafts or high-tech career advancement while maintaining family values.
 
 <h1 align="center">
